@@ -1,2 +1,2 @@
 # repo-lat
-hayukkkkkk yahaha hayuk hayuk hayuk
+yahaha hayuk hayuk hayuk
